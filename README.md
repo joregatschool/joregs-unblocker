@@ -5,7 +5,7 @@ runs on nebula
 ill probably never update this again unless my school patches it or it breaks
 enjoy!!1
 here: https://22r4n5-5173.csb.app/
-made with all my sweat and tears and blood- joreg <3
+made with all my sweat and tears and blood- jorge <3
 i have a list of links now some mights not work if you want more tell me
 
 https://wrnd.lat/
