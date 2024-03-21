@@ -12,3 +12,6 @@ https://wrnd.lat/
 
 guys try lumi OS probably the best on out there!!1!
 help me pray to god this dosent get blocked
+https://raw.githubusercontent.com/joregatschool/joregs-unblocker/main/LumiOS.v5.html
+click there then right click and click save as 
+save it as html and there boom bop pow kablam
