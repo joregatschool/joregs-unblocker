@@ -9,3 +9,6 @@ made with all my sweat and tears and blood- jorge <3
 i have a list of links now some mights not work if you want more tell me
 
 https://wrnd.lat/
+
+guys try lumi OS probably the best on out there!!1!
+help me pray to god this dosent get blocked
