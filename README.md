@@ -15,3 +15,5 @@ help me pray to god this dosent get blocked
 https://raw.githubusercontent.com/joregatschool/joregs-unblocker/main/LumiOS.v5.html
 click there then right click and click save as 
 save it as html and there boom bop pow kablam
+
+https://cassowariesdustman154.estiloescencial.cl/
